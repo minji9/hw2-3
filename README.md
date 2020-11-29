@@ -7,3 +7,8 @@ December2014
 call me baby
 love me right
 sing for you
+monster
+lotto
+For life
+kokobop
+
